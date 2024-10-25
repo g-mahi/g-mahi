@@ -7,7 +7,5 @@
 
 - 📫 How to reach me **mahimakumargandu8857@gmail.com**
 
-<h3 align="left">Connect with me:</h3>
-<p align="left">
-</p>
+
 
